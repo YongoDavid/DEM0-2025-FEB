@@ -7,3 +7,4 @@ Sunday chill day
 Still building with react , and still working on my pending projects.
 
 FEB 03
+New week, new day , same grind!!
