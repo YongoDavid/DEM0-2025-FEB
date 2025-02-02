@@ -3,3 +3,4 @@ AMAZING MONTH LAST MONTH, I STILL HAVE PROJECTS I AM NOT DONE WITH BUT THERE IS 
 LETS KEEP GOING, THE GRIND DONT STOP!!.
 
 FED 02
+Still building with react , and still working on my pending projects.
