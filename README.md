@@ -8,3 +8,4 @@ Still building with react , and still working on my pending projects.
 
 FEB 03
 New week, new day , same grind!!
+I will continue from where i stopped in the Dropbox project
