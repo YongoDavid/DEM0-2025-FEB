@@ -11,3 +11,4 @@ New week, new day , same grind!!
 I will continue from where i stopped in the Dropbox project
 
 FEB 04
+New day , same grind
