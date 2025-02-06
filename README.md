@@ -17,7 +17,8 @@ FEB 05
 New day, same grind!
 Dropbox(Storebox) project finally done and dusted.
 ChatApp done and Portfolio updated.
-Moving on to Promp engineering
+Moving on to Prompt engineering
 
 FEB 06
 Another day , Another grind.
+Starting to learn PE properly.
