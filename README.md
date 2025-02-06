@@ -20,3 +20,4 @@ ChatApp done and Portfolio updated.
 Moving on to Promp engineering
 
 FEB 06
+Another day , Another grind.
