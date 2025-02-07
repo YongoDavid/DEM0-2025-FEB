@@ -24,3 +24,4 @@ Another day , Another grind.
 Starting to learn PE properly.
 
 FEB 07
+New day, same grind!
