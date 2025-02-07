@@ -22,3 +22,5 @@ Moving on to Prompt engineering
 FEB 06
 Another day , Another grind.
 Starting to learn PE properly.
+
+FEB 07
