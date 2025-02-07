@@ -25,3 +25,4 @@ Starting to learn PE properly.
 
 FEB 07
 New day, same grind!
+Delving into PE and Prompt embedings
