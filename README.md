@@ -28,3 +28,4 @@ New day, same grind!
 Delving into PE and Prompt embedings
 
 FEB 08
+Still working on PE.
