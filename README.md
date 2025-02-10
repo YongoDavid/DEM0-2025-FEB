@@ -34,3 +34,4 @@ FEB 09
 Sunday Chill day
 
 FEB 10
+Working on more PE and going deeper.
