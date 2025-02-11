@@ -37,6 +37,5 @@ FEB 10
 Working on more PE and going deeper.
 
 FEB 11
-New dayy same grind!
-
-Working on some PE 
+New day same grind!
+Working on some PE, REACT and NEXT
