@@ -46,3 +46,4 @@ Still learning PE and going deeper.
 
 FEB 13
 New day, same grind.
+Working on more PE.
