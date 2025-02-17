@@ -60,3 +60,4 @@ Sunday, chill day
 Light work
 
 FEB 17
+New Week , same grind!
