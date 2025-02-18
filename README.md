@@ -62,3 +62,6 @@ Light work
 FEB 17
 New Week , same grind!
 Lets goooo
+
+FEB 18
+New say , same grind!
