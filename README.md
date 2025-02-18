@@ -65,3 +65,4 @@ Lets goooo
 
 FEB 18
 New say , same grind!
+Doing more PE and practice.
