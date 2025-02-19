@@ -64,8 +64,8 @@ New Week , same grind!
 Lets goooo
 
 FEB 18
-New say , same grind!
+New Day , same grind!
 Doing more PE and practice.
 
 FEB 19
-
+New day same grind!!
