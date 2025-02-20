@@ -70,3 +70,7 @@ Doing more PE and practice.
 FEB 19
 New day same grind!!
 Beginner course on PE almost done.
+
+FEB 20
+
+
