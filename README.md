@@ -77,3 +77,4 @@ More practice on PE.
 
 FEB 21
 New day, same grind.
+Going into different NLP applications.
