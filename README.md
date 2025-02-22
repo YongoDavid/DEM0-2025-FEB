@@ -85,3 +85,4 @@ With that said New day , same grid!!
 
 FEB 23
 Sunday chill day.
+Finish all pending tasks.
