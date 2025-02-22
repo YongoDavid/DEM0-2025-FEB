@@ -80,3 +80,4 @@ New day, same grind.
 Going into different NLP applications.
 
 FEB 22
+Been a little difficult these past few days but i just have to pick myself up and try again.
