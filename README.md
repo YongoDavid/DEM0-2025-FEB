@@ -84,3 +84,4 @@ Been a little difficult these past few days but i just have to pick myself up an
 With that said New day , same grid!!
 
 FEB 23
+Sunday chill day.
