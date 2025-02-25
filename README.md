@@ -92,4 +92,4 @@ New week , new day , same grind!!!
 i am going to smash more tasks this week and be better than last week.
 I will continue my PE course and co deeper, lets gooo
 
-https://huggingface.co/blog/rlhf
+FEB 25
