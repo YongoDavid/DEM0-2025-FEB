@@ -95,3 +95,6 @@ I will continue my PE course and co deeper, lets gooo
 FEB 25
 New day, same grind!
 More PE.
+
+FEB 26
+
