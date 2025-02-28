@@ -106,4 +106,4 @@ More PE and Practice.
 i have finished the Applications section on PE, i will go over it one more time then move to Intermediate Section.
 
 FEB 28
-
+New day , same grind!!
