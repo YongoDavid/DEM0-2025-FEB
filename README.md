@@ -107,3 +107,4 @@ i have finished the Applications section on PE, i will go over it one more time 
 
 FEB 28
 New day , same grind!!
+Starting the Intermediate section of PE.
